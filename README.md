@@ -2,3 +2,4 @@
 - **18** yr old!! dni under 16, latino + jew, CDID SYSTEM
 - please collectively use masc/neu terms 4 us! we go by spirit or undertaker
 - we are not on pt very often, ask us 4 our discord!
+- please be warned that we might be a bit rude to people we first meet.
