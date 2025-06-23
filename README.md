@@ -1,7 +1,7 @@
 - ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
 - ♱ w2i!! we are spirit
 - CDID SYSTEM
-- **taken** by @angelsgrave
+- **taken** by @/angelsgrave
 - **18** yr old!! dni under 16
 - please collectively use masc/neu terms 4 us!
 - we are not on pt very often, ask us 4 our discord IF OVER 16!!
